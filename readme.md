@@ -1,8 +1,6 @@
 #How to Make Turkey-Avocado Clubs
 
-***
-
-##Directions:
+Directions:
 
 1. Toss the onion with the vinegar and 2 tablespoons water in a small bowl. 
 
@@ -23,8 +21,6 @@
 1. Spread the remaining avocado mixture on the remaining 4 bread slices and place spread-side down on top of the sandwiches. 
 
 1. Cut each sandwich in half to serve.
-
-***
 
 __Tasty Credit:__ [Food Network](http://www.foodnetwork.com/recipes/food-network-kitchens/turkey-avocado-clubs-recipe.html)
 
