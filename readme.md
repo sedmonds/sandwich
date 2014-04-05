@@ -18,3 +18,5 @@
 
 1. Spread the remaining avocado mixture on the remaining 4 bread slices and place spread-side down on top of the sandwiches. Cut each sandwich in half to serve.
 
+_Tasty Credit_: [Food Network](http://www.foodnetwork.com/recipes/food-network-kitchens/turkey-avocado-clubs-recipe.html)
+
